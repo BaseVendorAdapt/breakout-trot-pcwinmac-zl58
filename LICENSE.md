@@ -1,4 +1,4 @@
-# 
+# Open Source breakout trading bot modules complémentaires pour Mac OS | Ultime breakout trading bot modules complémentaires pour PC Windows. Avec signature des transactions et stratégie de retour à la moyenne — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
